@@ -19,5 +19,3 @@ It's so tasty Come and chase me 못 참겠어
 
 "비둘기야~"
 구구~ 구구~ 구구크러스트!
-
-
